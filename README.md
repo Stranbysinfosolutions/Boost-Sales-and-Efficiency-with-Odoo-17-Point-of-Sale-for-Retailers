@@ -1,0 +1,1 @@
+# Boost-Sales-and-Efficiency-with-Odoo-17-Point-of-Sale-for-Retailers
